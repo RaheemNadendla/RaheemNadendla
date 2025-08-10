@@ -1,4 +1,4 @@
-# Hi there, I'm  Rahee 👋  
+# Hi there, I'm  Raheem 👋  
 
 🌟 Passionate about turning data into insight and ideas into impact.
 
